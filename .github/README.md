@@ -1,3 +1,7 @@
+⚠️ ɴᴏᴛᴇ ⚠️ :- ᴛʜɪꜱ ʙᴏᴛ ɴᴇᴇᴅ ᴀ ᴠᴘꜱ ꜱᴇʀᴠᴇʀ ᴛᴏ ʜᴏꜱᴛ ᴀɴᴅ ɢᴇᴛ ᴀ ʙᴇᴛᴛᴇʀ ᴇxᴘᴇʀɪᴇɴᴄᴇ . ɪꜰ ʏᴏᴜ ɴᴇᴇᴅ ᴠᴘꜱ ᴛʜᴇɴ ᴍᴇꜱꜱᴀɢᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ [@Am_TrickyYash](https://t.me/Am_TrickyYash)
+
+
+
 ━━━━━━━━━━━━━━━━━━━━
 
 <h2 align="center">
@@ -48,6 +52,11 @@ _**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [Vexera ✘ Robot](h
 - <b> ᴠᴘs/ʟᴏᴄᴀʟ ᴅᴇᴘʟᴏʏᴍᴇɴᴛ ᴍᴇᴛʜᴏᴅ </b>
 </h3></summary>
 
+
+⚠️ ɴᴏᴛᴇ ⚠️ :- ɴᴇᴇᴅ ᴠᴘꜱ ? ᴍᴇꜱꜱᴀɢᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ [@Am_TrickyYash](https://t.me/Am_TrickyYash) ᴛᴏ ʙᴜʏ ᴠᴘꜱ ɪɴ ʟᴏᴡ ᴘʀɪᴄᴇ 🌟
+
+
+
 - Get your [Necessary Variables](https://github.com/TrickyYash198/FallenRobot/blob/master/FallenRobot/config.py)
 - Upgrade and Update by :
 `sudo apt-get update && sudo apt-get upgrade -y`
@@ -93,17 +102,4 @@ Press `Ctrl+b` and then `d`
 <a href="https://telegram.me/The_Vexera"><img src="https://img.shields.io/badge/-Support%20Channel-blue.svg?style=for-the-badge&logo=Telegram"></a>
 </p>
 
-━━━━━━━━━━━━━━━━━━━━
-
-<h3 align="center">
-    ─「 ᴄʀᴇᴅɪᴛs 」─
-</h3>
-
-- <b>[TrickyYash198](https://github.com/TrickyYash198)  ➻  [sᴏᴍᴇᴛʜɪɴɢ](https://github.com/TrickyYash198/FallenRobot) </b>
-- <b>[TrickyYash1984](https://github.com/TrickyYash1984)  ➻  [ᴛɢ ʙᴏᴛ](https://github.com/TrickyYash198/FallenRobot) </b>
-- <b>[TeamVexera](https://github.com/TeamVexera)  ➻  [Vexera ʀᴏʙᴏᴛ](https://github.com/TrickyYash198/FallenRobot) </b>
-━━━━━━━━━━━━━━━━━━━━
-
-- <b>[The_Vexera](https://t.me/TheVexera)  ➻  [Vexera_Support](https://t.me/Vexera_Support) </b>
- 
 ━━━━━━━━━━━━━━━━━━━━
