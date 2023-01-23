@@ -1,4 +1,4 @@
-⚠️ Nᴏᴛᴇ ⚠️ :- Tʜɪꜱ Bᴏᴛ Nᴇᴇᴅ A Vᴘꜱ Sᴇʀᴠᴇʀ Tᴏ Hᴏꜱᴛ Aɴᴅ Tᴏ Gᴇᴛ A Bᴇᴛᴛᴇʀ Exᴘᴇʀɪᴇɴᴄᴇ . Iꜰ Yᴏᴜ Nᴇᴇᴅ Vᴘꜱ Tʜᴇɴ Mᴇꜱꜱᴀɢᴇ Oɴ Tᴇʟᴇɢʀᴀᴍ [@Am_TrickyYash](https://t.me/Am_TrickyYash)
+⚠️ Nᴏᴛᴇ ⚠️ :- Tʜɪꜱ Bᴏᴛ Nᴇᴇᴅ A Vᴘꜱ Sᴇʀᴠᴇʀ Tᴏ Hᴏꜱᴛ Aɴᴅ Tᴏ Gᴇᴛ A Bᴇᴛᴛᴇʀ Exᴘᴇʀɪᴇɴᴄᴇ . Iꜰ Yᴏᴜ Nᴇᴇᴅ Vᴘꜱ Tʜᴇɴ Mᴇꜱꜱᴀɢᴇ Oɴ Tᴇʟᴇɢʀᴀᴍ [@TᴇᴀᴍVᴇxᴇʀᴀSᴜᴘᴘᴏʀᴛ](https://t.me/TeamVexerSupport)
 
 
 
@@ -53,7 +53,7 @@ _**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [Vexera ✘ Robot](h
 </h3></summary>
 
 
-⚠️ Nᴏᴛᴇ ⚠️ :- Nᴇᴇᴅ Vᴘꜱ ? Mᴇꜱꜱᴀɢᴇ Oɴ Tᴇʟᴇɢʀᴀᴍ [@Am_TrickyYash](https://t.me/Am_TrickyYash) Tᴏ Gᴜʏ Vᴘꜱ Iɴ Lᴏᴡ Pʀɪᴄᴇ 🌟
+⚠️ Nᴏᴛᴇ ⚠️ :- Nᴇᴇᴅ Vᴘꜱ ? Mᴇꜱꜱᴀɢᴇ Oɴ Tᴇʟᴇɢʀᴀᴍ [@TᴇᴀᴍVᴇxᴇʀᴀSᴜᴘᴘᴏʀᴛ](https://t.me/TeamVexerSupport Tᴏ Gᴜʏ Vᴘꜱ Iɴ Lᴏᴡ Pʀɪᴄᴇ 🌟
 
 
 
