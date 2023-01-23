@@ -1,4 +1,4 @@
-⚠️ ɴᴏᴛᴇ ⚠️ :- ᴛʜɪꜱ ʙᴏᴛ ɴᴇᴇᴅ ᴀ ᴠᴘꜱ ꜱᴇʀᴠᴇʀ ᴛᴏ ʜᴏꜱᴛ ᴀɴᴅ To ɢᴇᴛ ᴀ ʙᴇᴛᴛᴇʀ ᴇxᴘᴇʀɪᴇɴᴄᴇ . ɪꜰ ʏᴏᴜ ɴᴇᴇᴅ ᴠᴘꜱ ᴛʜᴇɴ ᴍᴇꜱꜱᴀɢᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ [@Am_TrickyYash](https://t.me/Am_TrickyYash)
+⚠️ Nᴏᴛᴇ ⚠️ :- Tʜɪꜱ Bᴏᴛ Nᴇᴇᴅ A Vᴘꜱ Sᴇʀᴠᴇʀ Tᴏ Hᴏꜱᴛ Aɴᴅ Tᴏ Gᴇᴛ A Bᴇᴛᴛᴇʀ Exᴘᴇʀɪᴇɴᴄᴇ . Iꜰ Yᴏᴜ Nᴇᴇᴅ Vᴘꜱ Tʜᴇɴ Mᴇꜱꜱᴀɢᴇ Oɴ Tᴇʟᴇɢʀᴀᴍ [@Am_TrickyYash](https://t.me/Am_TrickyYash)
 
 
 
@@ -29,7 +29,7 @@ _**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [Vexera ✘ Robot](h
 ━━━━━━━━━━━━━━━━━━━━
 
 <p align="center">
-  <img src="https://telegra.ph/file/7bd111132fce009e4605e.jpg">
+  <img src="https://te.legra.ph/file/0d370e6d6b2521a8f6bfd.jpg">
 </p>
 
 <p align="center">
@@ -53,7 +53,7 @@ _**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [Vexera ✘ Robot](h
 </h3></summary>
 
 
-⚠️ ɴᴏᴛᴇ ⚠️ :- ɴᴇᴇᴅ ᴠᴘꜱ ? ᴍᴇꜱꜱᴀɢᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ [@Am_TrickyYash](https://t.me/Am_TrickyYash) ᴛᴏ ʙᴜʏ ᴠᴘꜱ ɪɴ ʟᴏᴡ ᴘʀɪᴄᴇ 🌟
+⚠️ Nᴏᴛᴇ ⚠️ :- Nᴇᴇᴅ Vᴘꜱ ? Mᴇꜱꜱᴀɢᴇ Oɴ Tᴇʟᴇɢʀᴀᴍ [@Am_TrickyYash](https://t.me/Am_TrickyYash) Tᴏ Gᴜʏ Vᴘꜱ Iɴ Lᴏᴡ Pʀɪᴄᴇ 🌟
 
 
 
