@@ -65,7 +65,7 @@ _**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [Vexera ✘ Robot](h
 - Install pip by :
 `sudo pip3 install -U pip`
 - Clone the repository by :
-`git clone https://github.com/TrickyYash198/FallenRobot && cd FallenRobot`
+`git clone https://github.com/TeamVexera/VexeraRobot && cd FallenRobot`
 - Install/Upgrade setuptools by :
 `pip3 install --upgrade pip setuptools`
 - Install requirements by :
