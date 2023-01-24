@@ -53,7 +53,7 @@ _**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [Vexera ✘ Robot](h
 </h3></summary>
 
 
-⚠️ Nᴏᴛᴇ ⚠️ :- Nᴇᴇᴅ Vᴘꜱ ? Mᴇꜱꜱᴀɢᴇ Oɴ Tᴇʟᴇɢʀᴀᴍ [@TᴇᴀᴍVᴇxᴇʀᴀSᴜᴘᴘᴏʀᴛ](https://t.me/TeamVexerSupport) Tᴏ Gᴜʏ Vᴘꜱ Iɴ Lᴏᴡ Pʀɪᴄᴇ 🌟
+⚠️ Nᴏᴛᴇ ⚠️ :- Nᴇᴇᴅ Vᴘꜱ ? Mᴇꜱꜱᴀɢᴇ Oɴ Tᴇʟᴇɢʀᴀᴍ [@TᴇᴀᴍVᴇxᴇʀᴀSᴜᴘᴘᴏʀᴛ](https://t.me/TeamVexerSupport) Tᴏ Bᴜʏ Vᴘꜱ Iɴ Lᴏᴡ Pʀɪᴄᴇ 🌟
 
 
 
